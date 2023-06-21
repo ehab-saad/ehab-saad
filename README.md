@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ehab-saad
+- 👀 I’m interested in machin lernning, deep lernning and neural network.
+- 🌱 I’m currently master's studant.
+- 💞️ I’m looking to collaborate on Research writing.
+- 📫 How to reach me on (213720941@ogr.altinbas.edu.tr)
